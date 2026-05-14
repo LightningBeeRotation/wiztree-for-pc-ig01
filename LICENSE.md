@@ -1,4 +1,4 @@
-# 
+# smart WizTree for PC | WizTree for Windows Addon | tree-view + duplicate-detection offers the most advanced WizTree for PC | WizTree for Windows addon, with tree-view and
 
 
 
